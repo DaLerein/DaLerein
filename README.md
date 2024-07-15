@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate with video maker
 - 📫 How to reach me by Gmail or Whatsapp
-- 😄 Pronouns: hi, can't wait to see you
+- 😄 Pronouns: hi, can't wait to meet you
 - ⚡ Fun fact: I like sports
 
 <!---
